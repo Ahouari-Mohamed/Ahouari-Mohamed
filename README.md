@@ -1,0 +1,4 @@
+- 👋 Hi, I’m Ahouari Mohamed
+- 👀 I’m interested in Sports
+- 🌱 I’m currently learning Coding
+- 😄 Pronouns: he
